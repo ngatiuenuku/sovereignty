@@ -9,3 +9,5 @@ Teachers like hagner,  Cohen helped me fill in these gaps plus all these other s
 We've always had a saying on our papakainga , ahi ote ahika,  keep the eternal light burning, my only true te reo thats been cemented in my mind, since I dont really remember, but one day I might try. This has been my source to sustainable living and free power, and probably why ive got all the recipes on how to maximize the "H" ⚛️  to 👽
 
 "Use rainbow 🌈 as i love rainbows and the communities, same with monarch butterflies 🦋" (20 Oct 2026)
+
+"The start is what I like to call uenuku uenuku , then ngati uenuku was the tribe/hapu, just for the records" (20 Oct 2026)

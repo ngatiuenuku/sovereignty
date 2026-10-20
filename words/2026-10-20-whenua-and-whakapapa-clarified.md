@@ -39,3 +39,5 @@ As I see it, the brown boy was struck by a spectrum of infrared and ultraviolet 
 On our papakāinga we have always had a saying: ahi o te ahika, keep the eternal fire burning. It is the one piece of te reo that has stayed fixed in my mind. I don't remember much more, but one day I might learn. This saying has been my source for living sustainably and for free power, and maybe it's why I feel I hold the recipes for making the most of the "H" ⚛️ and beyond 👽.
 
 I love rainbows 🌈 and the rainbow communities, and monarch butterflies 🦋.
+
+For the record: the start is what I call Uenuku Uenuku, and then Ngāti Uenuku was the tribe and hapū.
