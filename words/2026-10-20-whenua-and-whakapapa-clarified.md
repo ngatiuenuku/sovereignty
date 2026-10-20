@@ -41,3 +41,5 @@ On our papakāinga we have always had a saying: ahi o te ahika, keep the eternal
 I love rainbows 🌈 and the rainbow communities, and monarch butterflies 🦋.
 
 For the record: the start is what I call Uenuku Uenuku, and then Ngāti Uenuku was the tribe and hapū.
+
+A rainbow needs what our own lives need: light, water and mist. Condense the mist and you welcome the ocean, the sea, Tangaroa. 😆

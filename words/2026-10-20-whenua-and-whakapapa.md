@@ -11,3 +11,5 @@ We've always had a saying on our papakainga , ahi ote ahika,  keep the eternal l
 "Use rainbow 🌈 as i love rainbows and the communities, same with monarch butterflies 🦋" (20 Oct 2026)
 
 "The start is what I like to call uenuku uenuku , then ngati uenuku was the tribe/hapu, just for the records" (20 Oct 2026)
+
+"Makes sense, for a rainbow to form requires our vital existence in life, light water and mist , I like that. And condense that , welcome the ocean/sea/tangaroa/kangaroo hajajaja" (20 Oct 2026)
