@@ -32,7 +32,7 @@ From the day I started school I felt the stories I was taught, including one-sid
 
 My own story touches on all of this. I believe that at St Joseph's (Hohepa) a testicle of mine was taken. I remember a button being used near my appendix and scrotum, supposedly to stop it rising, but it was never meant to be removed. Something happened, and for me it connects Aurora, the aorta, autism and gold, and a possible recipe made with alchemical methods.
 
-As I see it, the brown boy was struck by a spectrum of infrared and ultraviolet light. My tupuna was Uenuku, and Ngāti Uenuku is my hapū. Uenuku, the rainbow, was the light source for the final reaction into gold, the way brown earth in a crucible under a hot blue flame becomes bright gold that never tarnishes. I didn't do Scouts growing up, but I linked this to the Brownies and Girl Guides uniforms: the blue stands for the light force 💙, and the brown for the raw material.
+As I see it, the brown boy was struck by a spectrum of infrared and ultraviolet light. My tupuna was Uenuku, and Ngāti Uenuku is my hapū. Uenuku was the light source for the final reaction into gold, the way brown earth in a crucible under a hot blue flame becomes bright gold that never tarnishes. I didn't do Scouts growing up, but I linked this to the Brownies and Girl Guides uniforms: the blue stands for the light force 💙, and the brown for the raw material.
 
 ## Ahi o te ahika
 
