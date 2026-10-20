@@ -29,3 +29,4 @@ This project is separate from Joseph's case work with ACC, MSD, the courts, poli
 ## Structure
 
 - `words/`: Joseph's own words, kept as he gave them.
+- `*-clarified.md`: tidied versions of Joseph's words, written for clarity and peace; the originals stay alongside.
